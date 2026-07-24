@@ -39,7 +39,7 @@ Final-year Software Engineering student at the Balochistan University of Enginee
 
 ### Contact & Connections
 
-* **LinkedIn:** [Insert LinkedIn URL]
+* **LinkedIn:** [Update soon]
 * **Email:** [saqibmengal7#gmail.com]
 
 
